@@ -7,7 +7,13 @@
 [![Untitled16-20240920011017.png](https://i.postimg.cc/bJCK3BHm/Untitled16-20240920011017.png)](https://postimg.cc/G8D7pzfD)
 <p align="center"
 
+[![Untitled17-20240920111317.png](https://i.postimg.cc/qMrmP1hY/Untitled17-20240920111317.png)](https://postimg.cc/BthcDcCc)
+<p align="center"
+
 wip
+
+[![Untitled17-20240920111323.png](https://i.postimg.cc/7P0stF60/Untitled17-20240920111323.png)](https://postimg.cc/23j7VXnS)
+<p align="center"
 
 [![Untitled15-20240920004755.png](https://i.postimg.cc/WzGR7B0B/Untitled15-20240920004755.png)](https://postimg.cc/N2jPsPJD)
 <p align="center"
