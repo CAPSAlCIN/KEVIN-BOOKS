@@ -7,7 +7,7 @@
 [![Untitled16-20240920011017.png](https://i.postimg.cc/bJCK3BHm/Untitled16-20240920011017.png)](https://postimg.cc/G8D7pzfD)
 <p align="center"
 
-[![Untitled17-20240920111317.png](https://i.postimg.cc/qMrmP1hY/Untitled17-20240920111317.png)](https://postimg.cc/BthcDcCc)
+[![Untitled17-20240920111317.png](https://i.postimg.cc/qMrmP1hY/Untitled17-20240920111317.png)](https://postimg.cc/BthcDcCc) 
 <p align="center"
 
 wip
