@@ -9,6 +9,7 @@
 ✦　　┈　　taken, also an artist!! (i also might turn a system too!!)
 ✦　　┈　　i love my friends fr they are so green name
 ✦　　┈　　"PLAY PHIGHTING!!!!!!!!"/pos/ref
+<p align="center"
 
 [![Untitled15-20240920004755.png](https://i.postimg.cc/WzGR7B0B/Untitled15-20240920004755.png)](https://postimg.cc/N2jPsPJD)
 <p align="center"
