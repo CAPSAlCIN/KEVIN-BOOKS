@@ -5,7 +5,8 @@
 <p align="center"
 
 
-luis/kevin/angelicoㅤ.ㅤhe/themㅤ.ㅤartist ^_^ㅤ.ㅤtakenㅤ.ㅤzipward or proshippers sdniuid :(ㅤ[![Tumblr-l-529049353032072.gif](https://i.postimg.cc/CxqT2tXH/Tumblr-l-529049353032072.gif)](https://postimg.cc/PCTRp6tP)
+luis/kevin/angelicoㅤ.ㅤhe/themㅤ.ㅤartist ^_^ㅤ.ㅤtakenㅤ.ㅤzipward or proshippers sdniuid :(
+ㅤ[![Tumblr-l-529049353032072.gif](https://i.postimg.cc/CxqT2tXH/Tumblr-l-529049353032072.gif)](https://postimg.cc/PCTRp6tP)ㅤㅤ[![Tumblr-l-529041103885071.gif](https://i.postimg.cc/W4tvnzjz/Tumblr-l-529041103885071.gif)](https://postimg.cc/Y4cZ2pvB)
 
 [![Untitled15-20240920004755.png](https://i.postimg.cc/WzGR7B0B/Untitled15-20240920004755.png)](https://postimg.cc/N2jPsPJD)
 <p align="center"
