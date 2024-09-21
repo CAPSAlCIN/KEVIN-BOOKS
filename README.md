@@ -9,7 +9,8 @@ rmking this for the 627362th times i swear to god
 >- The Name Is Luis! call me jack nor angelico, calling some nicknames for me is also fine! but i do not allow you to call me some weird or racism nicknames.
 >- my pronouns are he/them or they/them ; he/him, I don't like to being called a she unless my wife can call me a she. 
 >- multifandom, rarepair shipper (uauagh I love edvin sm rrraaaggghhhh)!!!!
->- also taken!, heh :3
+>- lesbian , trans, aromantic, also taken!, i love my wifey heh :3 (TSUKI U BETTER HAVE GITHUB OR IM BONKING U/POS)
+***
 
 [![Untitled15-20240920004755.png](https://i.postimg.cc/WzGR7B0B/Untitled15-20240920004755.png)](https://postimg.cc/N2jPsPJD)
 <p align="center"
