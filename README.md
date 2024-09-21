@@ -23,6 +23,9 @@ rmking this for the 627362th times i swear to god
 >- fpe haters
 >- edvin/kevward or rarepair shippers haters.
 >- what else do i have to put here.
+***
+[![Screenshot-20240922-014657-1.png](https://i.postimg.cc/MTDZCcVC/Screenshot-20240922-014657-1.png)](https://postimg.cc/jwDrNS8c)
+crack screen shot cause i love tsuki/srs
 
 [![Untitled15-20240920004755.png](https://i.postimg.cc/WzGR7B0B/Untitled15-20240920004755.png)](https://postimg.cc/N2jPsPJD)
 <p align="center"
