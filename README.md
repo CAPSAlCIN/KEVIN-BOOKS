@@ -24,7 +24,6 @@ rmking this for the 627362th times i swear to god
 >- edvin/kevward or rarepair shippers haters.
 >- what else do i have to put here.
 ***
-![](https://i.postimg.cc/MTDZCcVC/Screenshot-20240922-014657-1.png)
 ehem.
 
 [![Untitled15-20240920004755.png](https://i.postimg.cc/WzGR7B0B/Untitled15-20240920004755.png)](https://postimg.cc/N2jPsPJD)
