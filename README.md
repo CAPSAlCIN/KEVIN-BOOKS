@@ -7,6 +7,7 @@
 
 luis/kevin/angelicoㅤ.ㅤhe/themㅤ.ㅤartist ^_^ㅤ.ㅤtakenㅤ.ㅤzipward or proshippers sdniuid :(
 ㅤ[![Tumblr-l-529049353032072.gif](https://i.postimg.cc/CxqT2tXH/Tumblr-l-529049353032072.gif)](https://postimg.cc/PCTRp6tP)ㅤㅤ[![Tumblr-l-529041103885071.gif](https://i.postimg.cc/W4tvnzjz/Tumblr-l-529041103885071.gif)](https://postimg.cc/Y4cZ2pvB)
+<p align="center"
 
 Heh, i love my gang ; julez, hare/jonah, vana, cherry, sam/ali, alexis, kat/fuyuka, and last which is my most fav, tsuki and my Co-ceo!!!! (sol/renzu; co-ceo of edvin/kevward, heh)
 <p align="center"
