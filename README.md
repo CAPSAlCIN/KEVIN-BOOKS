@@ -24,7 +24,8 @@ rmking this for the 627362th times i swear to god
 >- edvin/kevward or rarepair shippers haters.
 >- what else do i have to put here.
 ***
-ehem.
+### links !! :D
+https://kevinbooks.atabook.org/
 
 [![Untitled15-20240920004755.png](https://i.postimg.cc/WzGR7B0B/Untitled15-20240920004755.png)](https://postimg.cc/N2jPsPJD)
 <p align="center"
