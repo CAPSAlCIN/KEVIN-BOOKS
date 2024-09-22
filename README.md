@@ -26,6 +26,8 @@ rmking this for the 627362th times i swear to god
 ***
 ### links !! :D
 https://kevinbooks.atabook.org/
+***
+note ; dividers are definitely made by me, so not f2u .
 
 [![Untitled15-20240920004755.png](https://i.postimg.cc/WzGR7B0B/Untitled15-20240920004755.png)](https://postimg.cc/N2jPsPJD)
 <p align="center"
