@@ -1,2 +1,2 @@
-![](https://litter.catbox.moe/cynn3q.jpg)
+![](https://litter.catbox.moe/hg8hgx.png)
 <p align="center"
